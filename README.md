@@ -20,7 +20,8 @@
 
 ---
 ### Latest Youtube Videos
-
+📺 [Biomutant +34 Game Trainer?](https://www.youtube.com/watch?v=6x49LC36TqQ)
+📺 [No Man's Sky Trainer (2021)?](https://www.youtube.com/watch?v=PvwQfcyvuKI)
 
 ---
 
@@ -39,7 +40,7 @@
 - [Cyberpunk 2077 Trainer](https://www.touchgen.net/cyberpunk-2077-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
-?? [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
+📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
 
 ---
 
