@@ -1,0 +1,16 @@
+
+name: Latest blog post workflow
+on:
+  schedule: # Run workflow automatically
+    - cron: '0 * * * *' # Runs every hour, on the hour
+  workflow_dispatch: # Run workflow manually (without waiting for the cron to be called), through the Github Actions Workflow page directly
+jobs:
+  update-readme-with-blog:
+    name: Update this repo's README with latest blog posts
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v2
+      - uses: gautamkrishnar/blog-post-workflow@master
+        with:
+          max_post_count: "10"
+          feed_list: "https://touchgen-gaming-trainers.blogspot.com/feeds/posts/default?alt=rss,touchgengametrainers.wordpress.com/feed/,http://touchgengametrainers.tumblr.com/rss,https://www.youtube.com/feeds/videos.xml?channel_id=UCbhIGQ8I6HXGkLQnoh3cXKA,https://www.touchgen.net/feed/,https://hacktrainer.livejournal.com/data/rss,https://www.pinterest.ca/touchgencheats/gaming-cheat-trainers.rss,https://touchgengametrainers.weebly.com/1/feed,https://www.diigo.com/rss/profile/touchgentrainers?privacy=public&sort=updated,https://feeds.redcircle.com/c78d5476-06c5-4617-9e88-a0af12c2a9c7"
