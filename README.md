@@ -20,6 +20,10 @@
 
 ---
 ### Latest Youtube Videos
+
+<!-- VIDEO-POST-LIST:START -->
+
+<!-- VIDEO-POST-LIST:END -->
 📺 [Biomutant +34 Game Trainer](https://www.youtube.com/watch?v=6x49LC36TqQ)<br>
 📺 [No Man's Sky Trainer (2021)](https://www.youtube.com/watch?v=PvwQfcyvuKI)
 
