@@ -13,5 +13,5 @@ jobs:
         with:
           max_post_count: "10"
           comment_tag_name: "VIDEO-POST-LIST"
-          template: "$emojiKey(📺)[$title]($url)$newline"
+          template: "$newline - $emojiKey(🔥📺💥)[$title]($url)"
           feed_list: "https://www.youtube.com/feeds/videos.xml?channel_id=UCbhIGQ8I6HXGkLQnoh3cXKA"
