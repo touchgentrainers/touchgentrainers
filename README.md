@@ -36,15 +36,15 @@
 
 <!-- BLOG-POST-LIST:START -->
 - [Age Of Empires 2 Definitive Edition Cheat Trainer (PC, 2021) - YouTube](https://www.youtube.com/watch?v=bvS_SpkM8OY&feature=youtu.be)
-- [Age Of Empires 2 Definitive Edition Cheat Trainer (PC, 2021)](https://www.youtube.com/watch?v=bvS_SpkM8OY)
 - [Game Cheating & Trainers In 2021](https://hacktrainer.livejournal.com/508.html)
-- [Game Trainers - What Are They Exactly?](https://touchgengametrainers.weebly.com/blog/game-trainers-what-are-they-exactly)
 - [Game Trainers - What Are They Exactly?](https://touchgen-gaming-trainers.blogspot.com/2021/06/game-trainers-what-are-they-exactly.html)
-- [Game Trainers - What Are They Exactly?](https://touchgengametrainers.tumblr.com/post/655353615630876672)
+- [Game Trainers - What Are They Exactly?](//channels.feeddigest.com/news?id=8969896285)
 - [Game Trainers - What Are They Exactly?](https://www.narro.co/article/cda2d176-3c99-47c7-aba5-fa29dc65dc86)
+- [Game Trainers - What Are They Exactly?](//channels.feeddigest.com/news?id=8969896541)
 - [Game Trainers - What Are They Exactly?](https://touchgen-gaming-trainers.blogspot.com/2021/06/game-trainers-what-are-they-exactly.html)
 - [FAQ for Narro](https://www.narro.co/article/b021f5c9-844d-4adc-b907-9b9cc3fbfd88)
-- [First PostThis is my first post, we&rsquo;re hoping to share the latest trainers we release on our...](https://touchgengametrainers.tumblr.com/post/655255297621917696)
+- [FAQ for Narro](//channels.feeddigest.com/news?id=8969896540)
+- [Mando](//channels.feeddigest.com/news?id=8969896283)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
