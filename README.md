@@ -36,6 +36,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Monster Hunter Stories 2 Wings of Ruin Trainer](https://www.touchgen.net/monster-hunter-stories-2-wings-of-ruin-trainer/)
 - [Biomuntant Trainer - Should You Cheat In This Game?](https://www.narro.co/article/ebe3055d-0fda-4e03-961c-ce36f7684da1)
 - [Biomuntant Trainer - Should You Cheat In This Game?](https://touchgen-gaming-trainers.blogspot.com/2021/07/biomuntant-trainer-should-you-cheat-in.html)
 - [Biomutant Trainer - Should You Cheat In This Game?](https://touchgen-gaming-trainers.blogspot.com/2021/07/biomuntant-trainer-should-you-cheat-in.html)
@@ -45,7 +46,6 @@
 - [Age Of Empires 2 Definitive Edition Cheat Trainer (PC, 2021) - YouTube](https://www.youtube.com/watch?v=bvS_SpkM8OY&feature=youtu.be)
 - [Game Cheating & Trainers In 2021](https://hacktrainer.livejournal.com/508.html)
 - [Game Trainers - What Are They Exactly?](https://touchgen-gaming-trainers.blogspot.com/2021/06/game-trainers-what-are-they-exactly.html)
-- [Game Trainers - What Are They Exactly?](//channels.feeddigest.com/news?id=8969896285)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
