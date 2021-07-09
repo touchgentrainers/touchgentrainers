@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Monster Hunter Stories 2 Wings of Ruin Trainer](https://www.pinterest.ca/pin/819021882238582377/)
 - [Our Recommended Monster Hunter Stories 2: Wings Of Ruin Trainer](https://touchgen-gaming-trainers.blogspot.com/2021/07/our-recommended-monster-hunter-stories.html)
 - [Monster Hunter Stories 2 Wings Of Ruin Trainer Download - YouTube](https://www.youtube.com/watch?v=m7LnELAjk80&feature=youtu.be)
 - [Monster Hunter Stories 2 Wings of Ruin Trainer](https://www.touchgen.net/monster-hunter-stories-2-wings-of-ruin-trainer/)
@@ -46,7 +47,6 @@
 - [Best Free Forza Horizon 4 Cheat Trainer Download | Touchgen.net - YouTube](https://www.youtube.com/watch?v=ZixpLiQOwTI&feature=youtu.be)
 - [Is It Okay To Use Trainers In Games?](https://www.narro.co/article/77a373ca-63a4-48d3-926d-1c8635f02ebb)
 - [Is It Okay To Use Trainers In Games?](https://gametrainers.medium.com/is-it-okay-to-use-trainers-in-games-54c3734ce628?source=rss-6ba783eb99f5------2)
-- [Age Of Empires 2 Definitive Edition Cheat Trainer (PC, 2021) - YouTube](https://www.youtube.com/watch?v=bvS_SpkM8OY&feature=youtu.be)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
