@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Deathloop Trainer](https://www.pinterest.ca/pin/819021882238638641/)
 - [Deathloop Trainer](https://www.touchgen.net/deathloop-trainer/)
 - [Wemod Pro Free](https://www.pinterest.ca/pin/819021882238610322/)
 - [My CheatHappens Review](https://hacktrainer.livejournal.com/720.html)
@@ -46,7 +47,6 @@
 - [Our Recommended Monster Hunter Stories 2: Wings Of Ruin Trainer](https://www.narro.co/article/9d288113-8e3d-4a9b-a167-c954e15b3ffe)
 - [Monster Hunter Stories 2 Wings of Ruin Trainer](https://www.pinterest.ca/pin/819021882238582377/)
 - [Our Recommended Monster Hunter Stories 2: Wings Of Ruin Trainer](https://touchgen-gaming-trainers.blogspot.com/2021/07/our-recommended-monster-hunter-stories.html)
-- [Monster Hunter Stories 2 Wings Of Ruin Trainer Download - YouTube](https://www.youtube.com/watch?v=m7LnELAjk80&feature=youtu.be)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
