@@ -37,6 +37,8 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Guardians Of The Galaxy Game Cheats?: hacktrainer — LiveJournal](https://hacktrainer.livejournal.com/1007.html)
+- [Guardians Of The Galaxy Game Cheats?](https://hacktrainer.livejournal.com/1007.html)
 - [](https://www.pinterest.ca/pin/819021882238700649/)
 - [Guardians Of The Galaxy Trainer](https://www.touchgen.net/guardians-of-the-galaxy-trainer/)
 - [Deathloop Trainer](https://www.pinterest.ca/pin/819021882238638641/)
@@ -45,8 +47,6 @@
 - [My CheatHappens Review](https://hacktrainer.livejournal.com/720.html)
 - [Why I Like CheatHappens Trainers](https://www.narro.co/article/b82bf90a-5c4a-4c0d-af0b-844d523d36c4)
 - [Why I Like CheatHappens Trainers](https://gametrainers.medium.com/why-i-like-cheathappens-trainers-1b1813dfda5?source=rss-6ba783eb99f5------2)
-- [Our Recommended Monster Hunter Stories 2: Wings Of Ruin Trainer](https://touchgen-gaming-trainers.blogspot.com/2021/07/our-recommended-monster-hunter-stories.html)
-- [Our Recommended Monster Hunter Stories 2: Wings Of Ruin Trainer](https://www.narro.co/article/9d288113-8e3d-4a9b-a167-c954e15b3ffe)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
