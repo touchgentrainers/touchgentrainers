@@ -37,6 +37,8 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882238700649/)
+- [Guardians Of The Galaxy Trainer](https://www.touchgen.net/guardians-of-the-galaxy-trainer/)
 - [Deathloop Trainer](https://www.pinterest.ca/pin/819021882238638641/)
 - [Deathloop Trainer](https://www.touchgen.net/deathloop-trainer/)
 - [Wemod Pro Free](https://www.pinterest.ca/pin/819021882238610322/)
@@ -45,8 +47,6 @@
 - [Why I Like CheatHappens Trainers](https://gametrainers.medium.com/why-i-like-cheathappens-trainers-1b1813dfda5?source=rss-6ba783eb99f5------2)
 - [Our Recommended Monster Hunter Stories 2: Wings Of Ruin Trainer](https://touchgen-gaming-trainers.blogspot.com/2021/07/our-recommended-monster-hunter-stories.html)
 - [Our Recommended Monster Hunter Stories 2: Wings Of Ruin Trainer](https://www.narro.co/article/9d288113-8e3d-4a9b-a167-c954e15b3ffe)
-- [Monster Hunter Stories 2 Wings of Ruin Trainer](https://www.pinterest.ca/pin/819021882238582377/)
-- [Our Recommended Monster Hunter Stories 2: Wings Of Ruin Trainer](https://touchgen-gaming-trainers.blogspot.com/2021/07/our-recommended-monster-hunter-stories.html)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
