@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882238761432/)
 - [](https://www.pinterest.ca/pin/819021882238729607/)
 - [Best Deathloop Trainer Download Cheats | Touchgen - YouTube](https://www.youtube.com/watch?v=5v8PQ1t9aY4&feature=youtu.be)
 - [Guardians Of The Galaxy Game Cheats?: hacktrainer — LiveJournal](https://hacktrainer.livejournal.com/1007.html)
@@ -46,7 +47,6 @@
 - [Deathloop Trainer](https://www.pinterest.ca/pin/819021882238638641/)
 - [Deathloop Trainer](https://www.touchgen.net/deathloop-trainer/)
 - [Wemod Pro Free](https://www.pinterest.ca/pin/819021882238610322/)
-- [My CheatHappens Review](https://hacktrainer.livejournal.com/720.html)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
