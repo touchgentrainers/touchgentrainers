@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882238858789/)
 - [](https://www.pinterest.ca/pin/819021882238827129/)
 - [](https://www.pinterest.ca/pin/819021882238795908/)
 - [](https://www.pinterest.ca/pin/819021882238761432/)
@@ -46,7 +47,6 @@
 - [](https://www.pinterest.ca/pin/819021882238700649/)
 - [Guardians Of The Galaxy Trainer](https://www.touchgen.net/guardians-of-the-galaxy-trainer/)
 - [Deathloop Trainer](https://www.pinterest.ca/pin/819021882238638641/)
-- [Deathloop Trainer](https://www.touchgen.net/deathloop-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
