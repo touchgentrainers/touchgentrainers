@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882238895361/)
 - [Age Of Empires 4 Trainer (AoE IV)](https://www.touchgen.net/age-of-empires-4-trainer/)
 - [](https://www.pinterest.ca/pin/819021882238858789/)
 - [](https://www.pinterest.ca/pin/819021882238827129/)
@@ -46,7 +47,6 @@
 - [Best Deathloop Trainer Download Cheats | Touchgen - YouTube](https://www.youtube.com/watch?v=5v8PQ1t9aY4&feature=youtu.be)
 - [Guardians Of The Galaxy Game Cheats?: hacktrainer — LiveJournal](https://hacktrainer.livejournal.com/1007.html)
 - [](https://www.pinterest.ca/pin/819021882238700649/)
-- [Guardians Of The Galaxy Trainer](https://www.touchgen.net/guardians-of-the-galaxy-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
