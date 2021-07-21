@@ -37,6 +37,8 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882238940067/)
+- [Resident Evil Village Trainer](https://www.touchgen.net/resident-evil-village-trainer/)
 - [](https://www.pinterest.ca/pin/819021882238930862/)
 - [Age Of Empires 4 Trainer Cheat Download - YouTube](https://www.youtube.com/watch?v=KGvqTVBPNNg&feature=youtu.be)
 - [](https://www.pinterest.ca/pin/819021882238895361/)
@@ -45,8 +47,6 @@
 - [](https://www.pinterest.ca/pin/819021882238827129/)
 - [](https://www.pinterest.ca/pin/819021882238795908/)
 - [](https://www.pinterest.ca/pin/819021882238761432/)
-- [](https://www.pinterest.ca/pin/819021882238729607/)
-- [Best Deathloop Trainer Download Cheats | Touchgen - YouTube](https://www.youtube.com/watch?v=5v8PQ1t9aY4&feature=youtu.be)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
