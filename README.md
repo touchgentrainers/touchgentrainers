@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882238972798/)
 - [](https://www.pinterest.ca/pin/819021882238940067/)
 - [Resident Evil Village Trainer](https://www.touchgen.net/resident-evil-village-trainer/)
 - [](https://www.pinterest.ca/pin/819021882238930862/)
@@ -46,7 +47,6 @@
 - [](https://www.pinterest.ca/pin/819021882238858789/)
 - [](https://www.pinterest.ca/pin/819021882238827129/)
 - [](https://www.pinterest.ca/pin/819021882238795908/)
-- [](https://www.pinterest.ca/pin/819021882238761432/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
