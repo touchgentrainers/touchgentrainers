@@ -37,6 +37,8 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [CheatHappens Video Review - Is This Trainer Website Any Good?](https://touchgen-gaming-trainers.blogspot.com/2021/07/cheathappens-video-review-is-this.html)
+- [CheatHappens Review - Best Game Trainers? - YouTube](https://www.youtube.com/watch?v=u8J0_dqS4to&feature=youtu.be)
 - [](https://www.pinterest.ca/pin/819021882238972798/)
 - [](https://www.pinterest.ca/pin/819021882238940067/)
 - [Resident Evil Village Trainer](https://www.touchgen.net/resident-evil-village-trainer/)
@@ -45,8 +47,6 @@
 - [](https://www.pinterest.ca/pin/819021882238895361/)
 - [Age Of Empires 4 Trainer (AoE IV)](https://www.touchgen.net/age-of-empires-4-trainer/)
 - [](https://www.pinterest.ca/pin/819021882238858789/)
-- [](https://www.pinterest.ca/pin/819021882238827129/)
-- [](https://www.pinterest.ca/pin/819021882238795908/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
