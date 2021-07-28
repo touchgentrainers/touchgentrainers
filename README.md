@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882239162865/)
 - [](https://www.pinterest.ca/pin/819021882239120869/)
 - [Icarus Trainer](https://www.touchgen.net/icarus-trainer/)
 - [](https://www.pinterest.ca/pin/819021882239071475/)
@@ -46,7 +47,6 @@
 - [CheatHappens Video Review - Is This Trainer Website Any Good?](https://www.narro.co/article/9b6ddefa-63ef-489a-b494-886e0101c835)
 - [](https://www.pinterest.ca/pin/819021882239007856/)
 - [CheatHappens Video Review - Is This Trainer Website Any Good?](https://touchgen-gaming-trainers.blogspot.com/2021/07/cheathappens-video-review-is-this.html)
-- [CheatHappens Review - Best Game Trainers? - YouTube](https://www.youtube.com/watch?v=u8J0_dqS4to&feature=youtu.be)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
