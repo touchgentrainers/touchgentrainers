@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882239504317/)
 - [](https://www.pinterest.ca/pin/819021882239476036/)
 - [](https://www.pinterest.ca/pin/819021882239446560/)
 - [Humankind Trainer](https://www.touchgen.net/humankind-trainer/)
@@ -46,7 +47,6 @@
 - [Best The Surge 2 Trainer Cheat Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=gtByxJ0XD1U&feature=youtu.be)
 - [](https://www.pinterest.ca/pin/819021882239324288/)
 - [Best Borderlands 3 Trainer Cheat Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=1mCnnunOVM8&feature=youtu.be)
-- [](https://www.pinterest.ca/pin/819021882239294225/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
