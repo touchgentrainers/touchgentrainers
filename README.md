@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882239564891/)
 - [](https://www.pinterest.ca/pin/819021882239535203/)
 - [Code Vein Trainer PC Download | Touchgen - YouTube](https://www.youtube.com/watch?v=g0uV3XJYyWU&feature=youtu.be)
 - [](https://www.pinterest.ca/pin/819021882239504317/)
@@ -46,7 +47,6 @@
 - [](https://www.pinterest.ca/pin/819021882239415792/)
 - [](https://www.pinterest.ca/pin/819021882239384226/)
 - [](https://www.pinterest.ca/pin/819021882239355328/)
-- [Best The Surge 2 Trainer Cheat Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=gtByxJ0XD1U&feature=youtu.be)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
