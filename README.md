@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882239653917/)
 - [](https://www.pinterest.ca/pin/819021882239625722/)
 - [](https://www.pinterest.ca/pin/819021882239595908/)
 - [](https://www.pinterest.ca/pin/819021882239564891/)
@@ -46,7 +47,6 @@
 - [](https://www.pinterest.ca/pin/819021882239476036/)
 - [](https://www.pinterest.ca/pin/819021882239446560/)
 - [Humankind Trainer](https://www.touchgen.net/humankind-trainer/)
-- [](https://www.pinterest.ca/pin/819021882239415792/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
