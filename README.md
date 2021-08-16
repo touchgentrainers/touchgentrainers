@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Diablo 2: Resurrected Trainer](https://www.touchgen.net/diablo-2-resurrected-trainer/)
 - [](https://www.pinterest.ca/pin/819021882239653917/)
 - [](https://www.pinterest.ca/pin/819021882239625722/)
 - [](https://www.pinterest.ca/pin/819021882239595908/)
@@ -46,7 +47,6 @@
 - [](https://www.pinterest.ca/pin/819021882239504317/)
 - [](https://www.pinterest.ca/pin/819021882239476036/)
 - [](https://www.pinterest.ca/pin/819021882239446560/)
-- [Humankind Trainer](https://www.touchgen.net/humankind-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
