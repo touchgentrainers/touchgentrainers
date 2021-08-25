@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882239964016/)
 - [](https://www.pinterest.ca/pin/819021882239935008/)
 - [Diablo 2: Resurrected Trainer](https://www.touchgen.net/diablo-2-resurrected-trainer/)
 - [](https://www.pinterest.ca/pin/819021882239653917/)
@@ -46,7 +47,6 @@
 - [](https://www.pinterest.ca/pin/819021882239535203/)
 - [Code Vein Trainer PC Download | Touchgen - YouTube](https://www.youtube.com/watch?v=g0uV3XJYyWU&feature=youtu.be)
 - [](https://www.pinterest.ca/pin/819021882239504317/)
-- [](https://www.pinterest.ca/pin/819021882239476036/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
