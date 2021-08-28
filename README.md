@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Pathfinder: Wrath Of The Righteous Trainer](https://www.touchgen.net/pathfinder-wrath-of-the-righteous-trainer/)
 - [](https://www.pinterest.ca/pin/819021882240051589/)
 - [Forza Horizon 5 Trainer](https://www.touchgen.net/forza-horizon-5-trainer/)
 - [](https://www.pinterest.ca/pin/819021882240023403/)
@@ -46,7 +47,6 @@
 - [Diablo 2: Resurrected Trainer](https://www.touchgen.net/diablo-2-resurrected-trainer/)
 - [](https://www.pinterest.ca/pin/819021882239653917/)
 - [](https://www.pinterest.ca/pin/819021882239625722/)
-- [](https://www.pinterest.ca/pin/819021882239595908/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
