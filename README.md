@@ -37,6 +37,8 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882240114082/)
+- [Tales Of Arise Trainer](https://www.touchgen.net/tales-of-arise-trainer/)
 - [The Riftbreaker Trainer](https://www.touchgen.net/the-riftbreaker-trainer/)
 - [](https://www.pinterest.ca/pin/819021882240081721/)
 - [Pathfinder: Wrath Of The Righteous Trainer](https://www.touchgen.net/pathfinder-wrath-of-the-righteous-trainer/)
@@ -45,8 +47,6 @@
 - [](https://www.pinterest.ca/pin/819021882240023403/)
 - [](https://www.pinterest.ca/pin/819021882239993863/)
 - [](https://www.pinterest.ca/pin/819021882239964016/)
-- [](https://www.pinterest.ca/pin/819021882239935008/)
-- [Diablo 2: Resurrected Trainer](https://www.touchgen.net/diablo-2-resurrected-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
