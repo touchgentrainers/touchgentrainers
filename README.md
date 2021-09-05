@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882240258214/)
 - [](https://www.pinterest.ca/pin/819021882240229527/)
 - [](https://www.pinterest.ca/pin/819021882240203542/)
 - [](https://www.pinterest.ca/pin/819021882240173399/)
@@ -46,7 +47,6 @@
 - [The Riftbreaker Trainer](https://www.touchgen.net/the-riftbreaker-trainer/)
 - [](https://www.pinterest.ca/pin/819021882240081721/)
 - [Pathfinder: Wrath Of The Righteous Trainer](https://www.touchgen.net/pathfinder-wrath-of-the-righteous-trainer/)
-- [](https://www.pinterest.ca/pin/819021882240051589/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
