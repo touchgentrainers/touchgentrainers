@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882240342230/)
 - [](https://www.pinterest.ca/pin/819021882240312221/)
 - [](https://www.pinterest.ca/pin/819021882240285457/)
 - [](https://www.pinterest.ca/pin/819021882240258214/)
@@ -46,7 +47,6 @@
 - [](https://www.pinterest.ca/pin/819021882240143313/)
 - [](https://www.pinterest.ca/pin/819021882240114082/)
 - [Tales Of Arise Trainer](https://www.touchgen.net/tales-of-arise-trainer/)
-- [The Riftbreaker Trainer](https://www.touchgen.net/the-riftbreaker-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
