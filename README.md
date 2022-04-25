@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Two Point Campus Trainer](https://www.touchgen.net/two-point-campus-trainer/)
 - [](https://www.pinterest.ca/pin/819021882246756015/)
 - [](https://www.pinterest.ca/pin/819021882246730071/)
 - [](https://www.pinterest.ca/pin/819021882246699550/)
@@ -46,7 +47,6 @@
 - [](https://www.pinterest.ca/pin/819021882246584076/)
 - [](https://www.pinterest.ca/pin/819021882246556756/)
 - [](https://www.pinterest.ca/pin/819021882246527429/)
-- [](https://www.pinterest.ca/pin/819021882246499540/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
