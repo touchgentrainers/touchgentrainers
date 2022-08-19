@@ -37,16 +37,16 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Two Point Campus Trainer](https://www.touchgen.net/two-point-campus-trainer/)
-- [Tales Of Arise Trainer](https://www.touchgen.net/tales-of-arise-trainer/)
-- [The Riftbreaker Trainer](https://www.touchgen.net/the-riftbreaker-trainer/)
-- [Pathfinder: Wrath Of The Righteous Trainer](https://www.touchgen.net/pathfinder-wrath-of-the-righteous-trainer/)
-- [Forza Horizon 5 Trainer](https://www.touchgen.net/forza-horizon-5-trainer/)
-- [Diablo 2: Resurrected Trainer](https://www.touchgen.net/diablo-2-resurrected-trainer/)
-- [Code Vein Trainer PC Download | Touchgen - YouTube](https://www.youtube.com/watch?v=g0uV3XJYyWU&feature=youtu.be)
-- [Humankind Trainer](https://www.touchgen.net/humankind-trainer/)
-- [Best The Surge 2 Trainer Cheat Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=gtByxJ0XD1U&feature=youtu.be)
-- [Best Borderlands 3 Trainer Cheat Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=1mCnnunOVM8&feature=youtu.be)
+- [](https://www.pinterest.ca/pin/819021882249637776/)
+- [](https://www.pinterest.ca/pin/819021882249613975/)
+- [](https://www.pinterest.ca/pin/819021882249584103/)
+- [](https://www.pinterest.ca/pin/819021882249556103/)
+- [](https://www.pinterest.ca/pin/819021882249528010/)
+- [](https://www.pinterest.ca/pin/819021882249499032/)
+- [](https://www.pinterest.ca/pin/819021882249469093/)
+- [](https://www.pinterest.ca/pin/819021882249442108/)
+- [](https://www.pinterest.ca/pin/819021882249415690/)
+- [](https://www.pinterest.ca/pin/819021882249388430/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
