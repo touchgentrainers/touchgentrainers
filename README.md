@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [](https://www.pinterest.ca/pin/819021882249665853/)
 - [](https://www.pinterest.ca/pin/819021882249637776/)
 - [](https://www.pinterest.ca/pin/819021882249613975/)
 - [](https://www.pinterest.ca/pin/819021882249584103/)
@@ -46,7 +47,6 @@
 - [](https://www.pinterest.ca/pin/819021882249469093/)
 - [](https://www.pinterest.ca/pin/819021882249442108/)
 - [](https://www.pinterest.ca/pin/819021882249415690/)
-- [](https://www.pinterest.ca/pin/819021882249388430/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
