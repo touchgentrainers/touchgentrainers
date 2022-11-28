@@ -37,16 +37,16 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882252011223/)
-- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882251985367/)
-- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882251962813/)
-- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882251939770/)
-- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882251916857/)
-- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882251892840/)
-- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882251868115/)
-- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882251841807/)
-- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882251818197/)
-- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882251795751/)
+- [](https://www.pinterest.ca/pin/819021882252011223/)
+- [](https://www.pinterest.ca/pin/819021882251985367/)
+- [](https://www.pinterest.ca/pin/819021882251962813/)
+- [](https://www.pinterest.ca/pin/819021882251939770/)
+- [](https://www.pinterest.ca/pin/819021882251916857/)
+- [](https://www.pinterest.ca/pin/819021882251892840/)
+- [](https://www.pinterest.ca/pin/819021882251868115/)
+- [](https://www.pinterest.ca/pin/819021882251841807/)
+- [](https://www.pinterest.ca/pin/819021882251818197/)
+- [](https://www.pinterest.ca/pin/819021882251795751/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
