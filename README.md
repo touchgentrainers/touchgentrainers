@@ -37,16 +37,16 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Two Point Campus Trainer](https://www.touchgen.net/two-point-campus-trainer/)
-- [Tales Of Arise Trainer](https://www.touchgen.net/tales-of-arise-trainer/)
-- [The Riftbreaker Trainer](https://www.touchgen.net/the-riftbreaker-trainer/)
-- [Pathfinder: Wrath Of The Righteous Trainer](https://www.touchgen.net/pathfinder-wrath-of-the-righteous-trainer/)
-- [Forza Horizon 5 Trainer](https://www.touchgen.net/forza-horizon-5-trainer/)
-- [Diablo 2: Resurrected Trainer](https://www.touchgen.net/diablo-2-resurrected-trainer/)
-- [Code Vein Trainer PC Download | Touchgen - YouTube](https://www.youtube.com/watch?v=g0uV3XJYyWU&feature=youtu.be)
-- [Humankind Trainer](https://www.touchgen.net/humankind-trainer/)
-- [Best The Surge 2 Trainer Cheat Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=gtByxJ0XD1U&feature=youtu.be)
-- [Best Borderlands 3 Trainer Cheat Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=1mCnnunOVM8&feature=youtu.be)
+- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253654690/)
+- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253627157/)
+- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253604121/)
+- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253575299/)
+- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253550166/)
+- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253522246/)
+- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253495331/)
+- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253468563/)
+- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253442520/)
+- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253416652/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
