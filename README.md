@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Hogwarts Legacy Trainer https://bit.ly/3DRV61T](https://www.pinterest.ca/pin/819021882253849393/)
 - [Hogwarts Legacy Trainer https://bit.ly/3DRV61T](https://www.pinterest.ca/pin/819021882253823274/)
 - [Hogwarts Legacy Trainer https://bit.ly/3DRV61T](https://www.pinterest.ca/pin/819021882253799573/)
 - [Hogwarts Legacy Trainer https://bit.ly/3DRV61T](https://www.pinterest.ca/pin/819021882253776095/)
@@ -46,7 +47,6 @@
 - [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253706314/)
 - [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253680885/)
 - [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253654690/)
-- [Two Point Campus Trainer https://bit.ly/3KuvFEd](https://www.pinterest.ca/pin/819021882253627157/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
