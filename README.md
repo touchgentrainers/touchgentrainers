@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Wild Hearts Trainer https://bit.ly/40QEOQN](https://www.pinterest.ca/pin/819021882254134276/)
 - [Wild Hearts Trainer https://bit.ly/40QEOQN](https://www.pinterest.ca/pin/819021882254109663/)
 - [Wild Hearts Trainer https://bit.ly/40QEOQN](https://www.pinterest.ca/pin/819021882254086417/)
 - [Wild Hearts Trainer https://bit.ly/40QEOQN](https://www.pinterest.ca/pin/819021882254062344/)
@@ -46,7 +47,6 @@
 - [Wild Hearts Trainer https://bit.ly/40QEOQN](https://www.pinterest.ca/pin/819021882253954097/)
 - [Wild Hearts Trainer https://bit.ly/40QEOQN](https://www.pinterest.ca/pin/819021882253928229/)
 - [Wild Hearts Trainer](https://www.touchgen.net/wild-hearts-trainer/)
-- [Pharaoh: A New Era Trainer](https://www.touchgen.net/pharaoh-a-new-era-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
