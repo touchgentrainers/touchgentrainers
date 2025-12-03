@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Is CheatHappens Aurora Cracked?](https://www.touchgen.net/cheathappens-aurora-cracked/)
 - [Is CheatHappens Premium Worth It?
  https://www.touchgen.net/is-cheathappens-premium-worth-it/](https://ca.pinterest.com/pin/819021882275847276/)
 - [Is CheatHappens Premium Worth It?
@@ -54,8 +55,6 @@
  https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275729682/)
 - [Wild Hearts Trainer
  https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275707212/)
-- [Wild Hearts Trainer
- https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275685034/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
