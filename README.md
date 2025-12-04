@@ -47,10 +47,14 @@
  https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275805499/)
 - [Wild Hearts Trainer
  https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275785331/)
-- [Wild Hearts Trainer](https://www.touchgen.net/wild-hearts-trainer/)
-- [Pharaoh: A New Era Trainer](https://www.touchgen.net/pharaoh-a-new-era-trainer/)
-- [Hogwarts Legacy Trainer](https://www.touchgen.net/hogwarts-legacy-trainer/)
-- [Two Point Campus Trainer](https://www.touchgen.net/two-point-campus-trainer/)
+- [Wild Hearts Trainer
+ https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275766426/)
+- [Wild Hearts Trainer
+ https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275748722/)
+- [Wild Hearts Trainer
+ https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275729682/)
+- [Wild Hearts Trainer
+ https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275707212/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
