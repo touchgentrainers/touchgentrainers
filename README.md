@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Monster Hunter Wilds Trainer](https://www.touchgen.net/monster-hunter-wilds-trainer/)
 - [Octopath Traveler 0 Trainer](https://www.touchgen.net/octopath-traveler-0-trainer/)
 - [Is CheatHappens Aurora Cracked?](https://www.touchgen.net/cheathappens-aurora-cracked/)
 - [Is CheatHappens Premium Worth It?
@@ -44,11 +45,14 @@
 - [Is CheatHappens Premium Worth It?
  https://www.touchgen.net/is-cheathappens-premium-worth-it/](https://ca.pinterest.com/pin/819021882275827029/)
 - [Is CheatHappens Premium Worth It?](https://www.touchgen.net/is-cheathappens-premium-worth-it/)
-- [Wild Hearts Trainer](https://www.touchgen.net/wild-hearts-trainer/)
-- [Pharaoh: A New Era Trainer](https://www.touchgen.net/pharaoh-a-new-era-trainer/)
-- [Hogwarts Legacy Trainer](https://www.touchgen.net/hogwarts-legacy-trainer/)
-- [Two Point Campus Trainer](https://www.touchgen.net/two-point-campus-trainer/)
-- [Tales Of Arise Trainer](https://www.touchgen.net/tales-of-arise-trainer/)
+- [Wild Hearts Trainer
+ https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275805499/)
+- [Wild Hearts Trainer
+ https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275785331/)
+- [Wild Hearts Trainer
+ https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275766426/)
+- [Wild Hearts Trainer
+ https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275748722/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
