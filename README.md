@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Dispatch Trainer](https://www.touchgen.net/dispatch-trainer/)
 - [Solo Leveling: ARISE OVERDRIVE Trainer](https://www.touchgen.net/solo-leveling-arise-overdrive-trainer/)
 - [Monster Hunter Wilds Trainer](https://www.touchgen.net/monster-hunter-wilds-trainer/)
 - [Octopath Traveler 0 Trainer](https://www.touchgen.net/octopath-traveler-0-trainer/)
@@ -48,7 +49,6 @@
 - [Is CheatHappens Premium Worth It?](https://www.touchgen.net/is-cheathappens-premium-worth-it/)
 - [Wild Hearts Trainer](https://www.touchgen.net/wild-hearts-trainer/)
 - [Pharaoh: A New Era Trainer](https://www.touchgen.net/pharaoh-a-new-era-trainer/)
-- [Hogwarts Legacy Trainer](https://www.touchgen.net/hogwarts-legacy-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
