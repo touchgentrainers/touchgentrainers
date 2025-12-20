@@ -48,8 +48,7 @@
 - [Is CheatHappens Premium Worth It?
  https://www.touchgen.net/is-cheathappens-premium-worth-it/](https://ca.pinterest.com/pin/819021882275827029/)
 - [Is CheatHappens Premium Worth It?](https://www.touchgen.net/is-cheathappens-premium-worth-it/)
-- [Wild Hearts Trainer
- https://www.touchgen.net/wild-hearts-trainer/](https://ca.pinterest.com/pin/819021882275805499/)
+- [Wild Hearts Trainer](https://www.touchgen.net/wild-hearts-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
