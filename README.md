@@ -37,18 +37,18 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Craftlings Trainer](https://touchgen.net/craftlings-trainer/)
+- [Titan Quest 2 Trainer](https://touchgen.net/titan-quest-2-trainer/)
+- [Dispatch Trainer](https://touchgen.net/dispatch-trainer/)
+- [Solo Leveling: ARISE OVERDRIVE Trainer](https://touchgen.net/solo-leveling-arise-overdrive-trainer/)
+- [Monster Hunter Wilds Trainer](https://touchgen.net/monster-hunter-wilds-trainer/)
+- [Octopath Traveler 0 Trainer](https://touchgen.net/octopath-traveler-0-trainer/)
+- [Is CheatHappens Aurora Cracked?](https://touchgen.net/cheathappens-aurora-cracked/)
 - [Is CheatHappens Premium Worth It?
  https://www.touchgen.net/is-cheathappens-premium-worth-it/](https://ca.pinterest.com/pin/819021882275847276/)
 - [Is CheatHappens Premium Worth It?
  https://www.touchgen.net/is-cheathappens-premium-worth-it/](https://ca.pinterest.com/pin/819021882275827029/)
-- [Code Vein Trainer PC Download | Touchgen - YouTube](https://www.youtube.com/watch?v=g0uV3XJYyWU&feature=youtu.be)
-- [Best The Surge 2 Trainer Cheat Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=gtByxJ0XD1U&feature=youtu.be)
-- [Best Borderlands 3 Trainer Cheat Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=1mCnnunOVM8&feature=youtu.be)
-- [Best Satisfactory Trainer Cheat Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=xb_tsj03p90&feature=youtu.be)
-- [Best Subnautica Below Zero Trainer Cheat Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=kFKcSaWTBMc&feature=youtu.be)
-- [Best Project Hospital Trainer Cheat Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=b2prNIkFV_0&feature=youtu.be)
-- [Best Pathfinder Kingmaker Trainer Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=M1s6WKM4k0o&feature=youtu.be)
-- [Best Edge of Eternity Trainer Download For PC | Touchgen - YouTube](https://www.youtube.com/watch?v=Nzx-qlLmoU4&feature=youtu.be)
+- [Is CheatHappens Premium Worth It?](https://touchgen.net/is-cheathappens-premium-worth-it/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
