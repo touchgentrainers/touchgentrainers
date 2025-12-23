@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Legend of Heroes: Trails Beyond the Horizon Trainer](https://touchgen.net/legend-of-heroes-trails-beyond-the-horizon-trainer/)
 - [Craftlings Trainer](https://touchgen.net/craftlings-trainer/)
 - [Titan Quest 2 Trainer](https://touchgen.net/titan-quest-2-trainer/)
 - [Dispatch Trainer](https://touchgen.net/dispatch-trainer/)
@@ -48,7 +49,6 @@
  https://www.touchgen.net/is-cheathappens-premium-worth-it/](https://ca.pinterest.com/pin/819021882275847276/)
 - [Is CheatHappens Premium Worth It?
  https://www.touchgen.net/is-cheathappens-premium-worth-it/](https://ca.pinterest.com/pin/819021882275827029/)
-- [Is CheatHappens Premium Worth It?](https://touchgen.net/is-cheathappens-premium-worth-it/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
