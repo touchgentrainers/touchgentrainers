@@ -45,10 +45,8 @@
 - [Monster Hunter Wilds Trainer](https://touchgen.net/monster-hunter-wilds-trainer/)
 - [Octopath Traveler 0 Trainer](https://touchgen.net/octopath-traveler-0-trainer/)
 - [Is CheatHappens Aurora Cracked?](https://touchgen.net/cheathappens-aurora-cracked/)
-- [Is CheatHappens Premium Worth It?
- https://www.touchgen.net/is-cheathappens-premium-worth-it/](https://ca.pinterest.com/pin/819021882275847276/)
-- [Is CheatHappens Premium Worth It?
- https://www.touchgen.net/is-cheathappens-premium-worth-it/](https://ca.pinterest.com/pin/819021882275827029/)
+- [Is CheatHappens Premium Worth It?](https://touchgen.net/is-cheathappens-premium-worth-it/)
+- [Wild Hearts Trainer](https://touchgen.net/wild-hearts-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
