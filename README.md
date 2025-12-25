@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Norse: Oath of Blood Trainer](https://touchgen.net/norse-oath-of-blood-trainer/)
 - [Code Vein 2 Trainer](https://touchgen.net/code-vein-2-trainer/)
 - [Legend of Heroes: Trails Beyond the Horizon Trainer](https://touchgen.net/legend-of-heroes-trails-beyond-the-horizon-trainer/)
 - [Craftlings Trainer](https://touchgen.net/craftlings-trainer/)
@@ -46,8 +47,6 @@
 - [Monster Hunter Wilds Trainer](https://touchgen.net/monster-hunter-wilds-trainer/)
 - [Octopath Traveler 0 Trainer](https://touchgen.net/octopath-traveler-0-trainer/)
 - [Is CheatHappens Aurora Cracked?](https://touchgen.net/cheathappens-aurora-cracked/)
-- [Is CheatHappens Premium Worth It?
- https://www.touchgen.net/is-cheathappens-premium-worth-it/](https://ca.pinterest.com/pin/819021882275847276/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
