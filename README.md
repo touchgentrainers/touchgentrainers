@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Dragon Quest 7: Reimagined Trainer](https://touchgen.net/dragon-quest-7-reimagined-trainer/)
 - [Norse: Oath of Blood Trainer](https://touchgen.net/norse-oath-of-blood-trainer/)
 - [Code Vein 2 Trainer](https://touchgen.net/code-vein-2-trainer/)
 - [Legend of Heroes: Trails Beyond the Horizon Trainer](https://touchgen.net/legend-of-heroes-trails-beyond-the-horizon-trainer/)
@@ -46,7 +47,6 @@
 - [Solo Leveling: ARISE OVERDRIVE Trainer](https://touchgen.net/solo-leveling-arise-overdrive-trainer/)
 - [Monster Hunter Wilds Trainer](https://touchgen.net/monster-hunter-wilds-trainer/)
 - [Octopath Traveler 0 Trainer](https://touchgen.net/octopath-traveler-0-trainer/)
-- [Is CheatHappens Aurora Cracked?](https://touchgen.net/cheathappens-aurora-cracked/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
