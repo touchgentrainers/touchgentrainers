@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Mewgenics Trainer](https://touchgen.net/mewgenics-trainer/)
 - [Nioh 3 Trainer](https://touchgen.net/nioh-3-trainer/)
 - [Dragon Quest 7: Reimagined Trainer](https://touchgen.net/dragon-quest-7-reimagined-trainer/)
 - [Norse: Oath of Blood Trainer](https://touchgen.net/norse-oath-of-blood-trainer/)
@@ -46,7 +47,6 @@
 - [Titan Quest 2 Trainer](https://touchgen.net/titan-quest-2-trainer/)
 - [Dispatch Trainer](https://touchgen.net/dispatch-trainer/)
 - [Solo Leveling: ARISE OVERDRIVE Trainer](https://touchgen.net/solo-leveling-arise-overdrive-trainer/)
-- [Monster Hunter Wilds Trainer](https://touchgen.net/monster-hunter-wilds-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
