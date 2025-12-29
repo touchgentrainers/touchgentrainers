@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Yakuza Kiwami 3 &amp; Dark Ties Trainer](https://touchgen.net/yakuza-kiwami-3-dark-ties-trainer/)
 - [Mewgenics Trainer](https://touchgen.net/mewgenics-trainer/)
 - [Nioh 3 Trainer](https://touchgen.net/nioh-3-trainer/)
 - [Dragon Quest 7: Reimagined Trainer](https://touchgen.net/dragon-quest-7-reimagined-trainer/)
@@ -46,7 +47,6 @@
 - [Craftlings Trainer](https://touchgen.net/craftlings-trainer/)
 - [Titan Quest 2 Trainer](https://touchgen.net/titan-quest-2-trainer/)
 - [Dispatch Trainer](https://touchgen.net/dispatch-trainer/)
-- [Solo Leveling: ARISE OVERDRIVE Trainer](https://touchgen.net/solo-leveling-arise-overdrive-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
