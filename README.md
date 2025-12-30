@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [StarRupture Trainer](https://touchgen.net/starrupture-trainer/)
 - [Yakuza Kiwami 3 &amp; Dark Ties Trainer](https://touchgen.net/yakuza-kiwami-3-dark-ties-trainer/)
 - [Mewgenics Trainer](https://touchgen.net/mewgenics-trainer/)
 - [Nioh 3 Trainer](https://touchgen.net/nioh-3-trainer/)
@@ -46,7 +47,6 @@
 - [Legend of Heroes: Trails Beyond the Horizon Trainer](https://touchgen.net/legend-of-heroes-trails-beyond-the-horizon-trainer/)
 - [Craftlings Trainer](https://touchgen.net/craftlings-trainer/)
 - [Titan Quest 2 Trainer](https://touchgen.net/titan-quest-2-trainer/)
-- [Dispatch Trainer](https://touchgen.net/dispatch-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
