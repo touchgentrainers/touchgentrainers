@@ -37,6 +37,7 @@
 ### 🧾 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Philna Fantasy Trainer](https://touchgen.net/philna-fantasy-trainer/)
 - [Gamer Stop Simulator Trainer](https://touchgen.net/gamer-stop-simulator-trainer/)
 - [StarRupture Trainer](https://touchgen.net/starrupture-trainer/)
 - [Yakuza Kiwami 3 &amp; Dark Ties Trainer](https://touchgen.net/yakuza-kiwami-3-dark-ties-trainer/)
@@ -46,7 +47,6 @@
 - [Norse: Oath of Blood Trainer](https://touchgen.net/norse-oath-of-blood-trainer/)
 - [Code Vein 2 Trainer](https://touchgen.net/code-vein-2-trainer/)
 - [Legend of Heroes: Trails Beyond the Horizon Trainer](https://touchgen.net/legend-of-heroes-trails-beyond-the-horizon-trainer/)
-- [Craftlings Trainer](https://touchgen.net/craftlings-trainer/)
 <!-- BLOG-POST-LIST:END -->
 
 📖 [more blog posts...](https://touchgen-gaming-trainers.blogspot.com)
